@@ -1,0 +1,1 @@
+Giberia is the capital city of the Giberland Republic and the Mani Federation. It is geographically located on the peak of Mt. Olympus of Mars, Solar System, Orion Spiral Region, Galactic Union of Mani
